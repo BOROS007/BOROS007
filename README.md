@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BOROS007
+- 👋 Hi, I’m @BOROS007 (Akshat Sharma)
 - 👀 I’m interested in utlizing my skills in a result-oriented company-(JOB) 
 - 🌱 I’m currently learning .NET
 - 💞️ I’m looking on my carrier as an software developer to work for an organization to utilize and improve my skills and knowledge to growth along with the organization objective 
